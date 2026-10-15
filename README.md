@@ -1,0 +1,1 @@
+# Emoji-brigde-for-Zebra-scanners
